@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **jcardona0110@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/uc?export=download&id=1Ywr4GTSmd3HOBMRRUQX7jYhqNwRqv_P1](https://drive.google.com/uc?export=download&id=1Ywr4GTSmd3HOBMRRUQX7jYhqNwRqv_P1)
+- 📄 Learn about my experiences [https://drive.google.com/uc?export=download&id=1Ywr4GTSmd3HOBMRRUQX7jYhqNwRqv_P1](https://drive.google.com/uc?export=download&id=1Ywr4GTSmd3HOBMRRUQX7jYhqNwRqv_P1)
 
 - ⚡ Fun fact **I'm a big nerd; ask me about it!**
 
