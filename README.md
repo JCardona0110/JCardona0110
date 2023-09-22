@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **new and fun projects**
 
-- 👨‍💻 All of my projects are available at [https://jonathancardona.netlify.app](https://jonathancardona.netlify.app)
+- 👨‍💻 Take a look at my portfolio [https://jonathancardona.netlify.app](https://jonathancardona.netlify.app)
 
 - 💬 Ask me about **JavaScript and Node**
 
